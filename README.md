@@ -1,0 +1,1 @@
+# tahmini_yasam_suresi
